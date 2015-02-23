@@ -9,3 +9,5 @@ Want to chill?
 - Audio Lotion - Aquitane
 - Jazzanova - L.O.V.E And You And I
 - Black Mighty Orchestra, Henry Mancini - Ocean Beach (Lujon)
+- Unforscene - Pimp On Vacation
+- Skylab - Next
