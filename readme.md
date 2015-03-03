@@ -13,3 +13,4 @@ Want to chill?
 - Skylab - Next
 - The Dining Rooms - Cinemaroma 3
 - Yoshinori Sunahara - Welcome To Japan
+- Flamingo Star - Syncrostar
