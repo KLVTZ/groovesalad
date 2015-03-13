@@ -14,3 +14,5 @@ Want to chill?
 - The Dining Rooms - Cinemaroma 3
 - Yoshinori Sunahara - Welcome To Japan
 - Flamingo Star - Syncrostar
+- 9 In Common - The Cd Book
+- Visit Venus - Harlem Overdrive
