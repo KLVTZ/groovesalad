@@ -17,3 +17,9 @@ Want to chill?
 - 9 In Common - The Cd Book
 - Visit Venus - Harlem Overdrive
 - Jaffa - Sneakin'
+- Alex Cortiz - Glamourgirl
+- Neotropic - Nana
+- Fila Brazillia - Space Hearse
+- Adventure Time - The Sea Of Tranquility (Yosi Horikawa Remix)
+- Hidden Orchestra - Seven Hunters (Dam Mantle Remix)
+- Zero 7- Likufanele
