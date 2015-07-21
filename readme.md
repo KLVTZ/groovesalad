@@ -25,7 +25,6 @@ Want to chill?
 - Zero 7- Likufanele
 - Horse Noodles - Zzz
 - Spiral System - And So To Sleep
-- Spiral System - And So To Sleep
 - Sensorama - Echtzeit
 - Vealo - Monte La Rue
 - Yoshinori Sunahara - Rhodes Funky Dub (Interlude)
@@ -33,3 +32,4 @@ Want to chill?
 - Bobby Trafalgar - Homeshopping
 - 9 In Common - Close Your Eye
 - Yonderboi - Fairy Of The Lake
+- Blue Mar Ten - Adrift on Deep Water
