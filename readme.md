@@ -35,3 +35,5 @@ Want to chill?
 - Blue Mar Ten - Adrift on Deep Water
 - Nicola Conte - Arabesque
 - Move D - Beyond The Machine
+- Boozoo Bajou - Bakar
+- Nujabes - World Without Words
